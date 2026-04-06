@@ -1,4 +1,5 @@
-<img width="1258" height="947" alt="imagen" src="https://github.com/user-attachments/assets/1f1ae016-b8be-474e-b2e9-e2d91bd7f5c7" />## **Luciano Tisera, o Cabo**
+**Luciano Tisera, o Cabo**
+
 ### Sobre mí
 
 Mi nombre es *Luciano*, pero casi todos me dicen **Cabo** (por el pingüino de Madagascar, la historia no viene al caso). Tengo 24 años y estoy cursando el 2do año de la carrera. Trabajo a la par que estudio, ta difícil pero en eso andamos.
