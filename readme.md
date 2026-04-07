@@ -6,6 +6,8 @@ Mi nombre es *Luciano*, pero casi todos me dicen **Cabo** (por el pingüino de M
 
 Desde chiquito me interesa usar la computadora para lo que sea, desde navegar por internet hasta jugar.
 Particularmente me gustan mucho los videojuegos, soy fan de sagas como Half Life, Fallout, Uncharted, y otros juegos como Hades, Legend of Zelda, Terraria, etc.
+A pedido agrego mis favoritos de las sagas:
+Half Life 2, Fallout New Vegas, Uncharted 4, Hades 2, Legend of Zelda Tears of the Kingdom.
 
 
 
