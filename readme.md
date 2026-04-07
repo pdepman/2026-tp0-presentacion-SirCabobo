@@ -17,7 +17,7 @@ Half Life 2, Fallout New Vegas, Uncharted 4, Hades 2, Legend of Zelda Tears of t
 ### También tengo 3 michis
 ![image](https://github.com/user-attachments/assets/dd233915-bd87-4d54-9a52-b14416dbcf53)
 No tienen nombre pero sí apodos. De izquierda a derecha:
-Blanquita (porque tiene toda la pancita blanca), chiquita (porque es la más chiquita de las 3), y gorda (por motivos evidentes)
+Blanquita (porque tiene toda la pancita blanca), este año cumple 10. Chiquita (porque es la más chiquita de las 3), esta cumple 9 este año. Y la gorda (por motivos evidentes), que también cumple 9 (pero es unos meses mayor a la otra).
 ### Y una novia a la que amo muxo
 ![image](https://github.com/user-attachments/assets/3a07361e-49fc-4166-a87c-20c166be73c4)
 
