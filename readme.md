@@ -14,7 +14,8 @@ Particularmente me gustan mucho los videojuegos, soy fan de sagas como Half Life
 
 ### También tengo 3 michis
 ![image](https://github.com/user-attachments/assets/dd233915-bd87-4d54-9a52-b14416dbcf53)
-
+No tienen nombre pero sí apodos. De izquierda a derecha:
+Blanquita (porque tiene toda la pancita blanca), chiquita (porque es la más chiquita de las 3), y gorda (por motivos evidentes)
 ### Y una novia a la que amo muxo
 ![image](https://github.com/user-attachments/assets/3a07361e-49fc-4166-a87c-20c166be73c4)
 
